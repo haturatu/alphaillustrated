@@ -1,0 +1,290 @@
+clark
+
+[![](https://uploads-
+ssl.webflow.com/626c2991dc680562529f9950/629b74f73be33d1176dc4830_Logo%20light%20-%20clear.png)](https://www.alphaillustrated.com/)
+
+[illustrations](https://www.alphaillustrated.com/illustrations)[interviews](https://www.alphaillustrated.com/interviews)[branding](https://www.alphaillustrated.com/branding)[![](https://uploads-
+ssl.webflow.com/626c2991dc680562529f9950/629b76478192da5520772259_icons8-twitter-90.png)](https://twitter.com/illustratealpha)[![](https://uploads-
+ssl.webflow.com/626c2991dc680562529f9950/629b763a07d54f96ec0c613b_opensea.png)](https://opensea.io/collection/alphaillustrated)
+
+[<< interviews](https://www.alphaillustrated.com/interviews)
+
+# Cantering Clark
+
+![](https://uploads-
+ssl.webflow.com/6293c4a6cc12924dec2dd165/6297709c5a8a9148b6bc6e1e_canteringclark.png)
+
+@Canteringclark has been trading for 15 years across multiple markets. He is
+currently a full-time crypto trader, primarily focused on Bitcoin.
+
+**What attracted you to trading?**
+
+I think everyone’s initial motivation for getting into anything finance-
+related is money. There are enormous financial rewards if you can become a
+successful trader. That said, money is only a part of the picture - for me,
+the ultimate attraction of trading at a high level is the autonomy of
+lifestyle it provides.  
+
+‍
+
+**How long have you been trading?**
+
+I have been trading for a little over 15 years now. From ETFs, equity futures,
+crude, and now primarily crypto with a focus specifically on Bitcoin.
+
+I started out as a kid trading equities and taking a passive, trend-following
+approach to markets. I was obsessed with markets early on after reading
+Michael Lewis’s “Liars Poker” and getting a chance to be a fly on a wall at an
+acquaintance’s proprietary trading firm and brokerage while I was in college.
+
+As I became more formally involved in markets and trend following strategies
+started dissolving, I shifted toward a more active approach. I’ve had the
+chance to trade for a family office, start my boutique, and now primarily just
+trade for my own personal account. Honestly, the biggest change I have seen in
+markets is the retail renaissance of the last few years, and as a result the
+increase in the availability of cheap platforms and information that in the
+past only a select few were privy to. The battleground is a lot more even in
+my opinion.
+
+‍
+
+**How long did it take you to become profitable?**
+
+I became profitable very soon after trading, but from the outset, I had an
+approach that was less alpha and more beta. I was a systematic trend follower
+during a time where that was rewarded. I was also lucky enough to interact
+with some very successful people early on and inherited a performance mindset
+from being a very disciplined athlete and student.
+
+Being able to download from the experience of others is a tremendous
+advantage, as the saying goes “I can see further when I stand on the shoulders
+of giants”.
+
+‍
+
+> **“I HAD AN APPROACH THAT WAS LESS ALPHA AND MORE BETA. I WAS A SYSTEMATIC
+> TREND FOLLOWER DURING A TIME WHERE THAT WAS REWARDED.”**
+
+— CANTERING CLARK
+
+‍
+
+**Do you have a daily routine?**
+
+I try to make a habit of starting the day by doing nothing related to markets
+or screentime. I am up most mornings around 06:00, and I enjoy an hour of
+quiet nothingness with coffee and my dog outside. I know the markets are
+triggering enough, so starting off as peaceful as possible is very important
+to me.
+
+After that, I am at my desk, catching up on overnight news and equity futures
+activity. Specifically, for how I trade, I want to know if there has been any
+major shift in positioning or behaviour that has come into the market, and if
+so, where we are trading in relation to that.
+
+In the last two years, the NY cash session has taken on a lot more
+significance in crypto, so this microstructural detail dictates that I am in
+the seat until lunch. I honestly enjoy the ‘RTH like’ hours crypto has shifted
+more toward, at least from a session standpoint, because this allows me to
+have a semi-normal schedule and to fit in one of the other things I value and
+require most, exercise.
+
+Routine, in general, is very important for trading, as adherence to it demands
+a level of dedication and discipline that is required for success.
+
+‍
+
+> **“I TRY TO MAKE A HABIT OF STARTING THE DAY BY DOING NOTHING RELATED TO
+> MARKETS OR SCREENTIME.”**
+
+— CANTERING CLARK
+
+‍
+
+**What's the worst thing about trading?**
+
+One of the worst things about trading this market specifically is the 24/7
+structure of the market. It is very easy to get sucked into constant
+observation mode if you don’t understand the finer details of microstructure,
+such as when the most significant activity occurs. Without structure, it feels
+like any time out of the market has the highest opportunity cost. This can
+lead to unhealthy lifestyle behaviours.  
+
+‍
+
+**Would you share with us your most memorable trade?**
+
+Most intraday trades don’t get me very emotionally involved. The theses are
+not sexy, and it would be hard to distinguish one as being more important than
+the other since they are for the most part created equal and taken more
+mechanically than anything else.
+
+That being said, the standout trades are the ones where a ton of
+thoughtfulness has taken place, or where there is plenty of nuance and
+discretion to be applied. One that will always stand out was shorting the 6k
+breakdown in 2018 or getting as long as possible during September 2020. In
+both cases, the market was very divided about the setup, but in reality, there
+was a large contextual shift that meant something new and of magnitude was in
+store, and it would have legs.
+
+‍
+
+**What’s the best trading advice you’ve been given?**
+
+Ah, a bunch, so let me give you five:
+
+  1. “Obsess over your instrument. Build deep knowledge of how it trades, and everything that affects it.  Microstructure is extremely important.”
+  2. “Trade what is happening, not what you want to happen.”
+  3. Focus on process over outcome. The faster you can come to terms with the fact that the next trade really shouldn’t matter much - the better off you will be.
+  4. Write down your plan. If it only lives in your head, it is just an abstraction that is difficult to lean on during high-stress periods.
+  5. “Whatever you do, don’t die” - don’t put yourself in a position to lose your place at the table. Michael Platt of Blue Crest said it best “Losing money is what kills you. It's not the actual loss. It's the fact it messes up your psychology. You lose the bullets in your gun. Then the elephant walks by when your gun isn't loaded. In this game, you want to be there when the great trades come along."
+
+‍
+
+> **“WHATEVER YOU DO, DON’T DIE”**
+
+— CANTERING CLARK
+
+‍
+
+**What's the most important quality in a trader?**
+
+Rational thinking, self-awareness, conscientiousness, grit, and discipline.
+
+‍
+
+**Why do you think you have success trading?**
+
+I am obsessive. I have also been doing this long enough to know that another
+trade is always coming, so there is rarely a case where I feel FOMO on my end.
+This is a major issue for most people. If you can get to the point where you
+truly do not care about a loss either from being in a trade that has gone
+against you or the opportunity cost of a trade you did not participate in, you
+are on the right path.
+
+If you are going to lose money in the market let it be due to variance and not
+poor execution or decision making. Variance is important to understand because
+just like poker, even if you play what looks like a perfect hand at the table,
+you can lose to the person who gets lucky and hits a royal flush.
+
+‍
+
+![](https://uploads-
+ssl.webflow.com/6293c4a6cc12924dec2dd165/629770f274a4c6561866dfd2_variance.png)
+
+“If you are going to lose money in the market let it be due to variance and
+not poor execution or decision making.” - Cantering Clark
+
+  
+
+‍
+
+**What's something you've learned in the last 6 months that has made you a
+better trader?**
+
+The more time I give to myself to do things outside of trading, the better I
+am when I am in front of the screens. Life is about balance. Also, in an ever-
+evolving market the last few months to  “Kill your darlings”. The market is
+changing a lot, and you need to be able to let go of previous edges that are
+no longer yielding the same results etc.
+
+‍
+
+> **“THE MORE TIME I GIVE TO MYSELF TO DO THINGS OUTSIDE OF TRADING, THE
+> BETTER I AM WHEN I AM IN FRONT OF THE SCREENS.”**
+
+— CANTERING CLARK
+
+‍
+
+**What's the mistake you find hardest to avoid when trading?**
+
+Cutting winners early. As primarily an intraday trader I tend to get out of
+position at the next “sticky” area or sign of trouble.
+
+A lot of my “blue chip” alt trades that should have been longer swings were
+inefficiently managed as I would have been better off building conviction
+based on a larger narrative/fundamental basis.
+
+I keep separate accounts for holding and trading and try not to let the
+decisions that affect my trading account spill into my spot holding account.
+
+‍
+
+**If you could give someone starting trading tomorrow one piece of advice what
+would it be?**
+
+Learn as much as possible about what moves your market. Study human behaviour
+and market microstructure. Understand who trades your asset, what its “norms”
+are, how it behaves at key moments (futures/options expiry, macro news etc).
+Focus less on sharpening a singular strategy and more on becoming an expert on
+the market you are in.
+
+> **“FOCUS LESS ON SHARPENING A SINGULAR STRATEGY AND MORE ON BECOMING AN
+> EXPERT ON THE MARKET YOU ARE IN. ”**
+
+— CANTERING CLARK
+
+‍
+
+**What are some things to look out for when picking a market?**
+
+First and foremost, are there inefficiencies or anomalies that you can take
+advantage of? Is there enough liquidity for you to do something meaningful
+with the opportunity? Is this a new market or an older market?
+
+Crypto is the ideal market for a trader due to the answers to all these
+questions. It is one that has more retail presence, or rather one where the
+difference between retail behaviour and smart money behaviour is stark, has a
+ton of reflexivity, and the benefit of being relatively immature.  
+
+‍
+
+**What drives you to keep trading?**  
+
+Freedom, the excitement of playing a metagame for a living, and money.
+
+  
+**What does ‘making it’ look like to you?**
+
+At this point I feel like I have made it, so now the focus shifts to keeping
+it, constantly finding new motivations, and trying to help others change their
+lives. If you don’t find motivation outside of money you are going to hit an
+existential wall. Beyond a certain amount of money, the satisfaction of each
+additional dollar really drops off.
+
+‍
+
+![](https://uploads-
+ssl.webflow.com/6293c4a6cc12924dec2dd165/629771043064e0b7d14180ad_utility.png)
+
+“Beyond a certain amount of money, the satisfaction of each additional dollar
+really drops off.” - Cantering Clark
+
+‍
+
+#### **FILL IN THE BLANKS**
+
+**Most traders would be better off** watching a one-minute chart and tape all
+day to get a feel for how price moves around levels and how market
+participation picks up or slows down. Focus on learning why the market moves,
+and what makes the market move. “The market is just positions”
+
+  
+**What separates the pros from the rest is** a lack of distraction and
+indifference to losses. You are going to lose big. Soros said that it was a
+good thing that he had a poor memory because it helped to always only be
+focused on the future
+
+  
+**A good trader should never** risk their entire bankroll.
+
+**  
+The biggest misconception about trading is** that it is something you can do
+part-time. It’s a job, and the sooner you treat it like a business the better
+off you will be.
+
+‍
+
+  
+

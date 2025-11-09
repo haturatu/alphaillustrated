@@ -1,0 +1,366 @@
+general
+
+[![](https://uploads-
+ssl.webflow.com/626c2991dc680562529f9950/629b74f73be33d1176dc4830_Logo%20light%20-%20clear.png)](https://www.alphaillustrated.com/)
+
+[illustrations](https://www.alphaillustrated.com/illustrations)[interviews](https://www.alphaillustrated.com/interviews)[branding](https://www.alphaillustrated.com/branding)[![](https://uploads-
+ssl.webflow.com/626c2991dc680562529f9950/629b76478192da5520772259_icons8-twitter-90.png)](https://twitter.com/illustratealpha)[![](https://uploads-
+ssl.webflow.com/626c2991dc680562529f9950/629b763a07d54f96ec0c613b_opensea.png)](https://opensea.io/collection/alphaillustrated)
+
+[<< interviews](https://www.alphaillustrated.com/interviews)
+
+# Byzantine General
+
+![](https://uploads-
+ssl.webflow.com/6293c4a6cc12924dec2dd165/62978c9a2a46d6c70bc4e6b4_byzgeneral.png)
+
+@Byzgeneral is a cartoon tiger pressing buttons in crypto since 2017.
+
+**How did you get into crypto trading?**
+
+I was introduced to crypto when my cousin told me about Bitcoin in 2017. He’s
+a smart guy, so when he tells me something I tend to listen. I quickly found
+out it’s pretty much the only truly free and open market in the world. When I
+joined crypto was still in its very early stages so there were still
+opportunities to be found everywhere. In terms of trading, I have always liked
+the idea of being my own boss and generally having freedom.
+
+  
+  
+**How long have you been trading?**
+
+5 years in total although I’ve only been trading full time for a year. Before
+that, I was mostly investing while I had a regular job.
+
+  
+
+**How did you manage to carve out time to learn crypto when you were working
+full-time?**
+
+When I discovered crypto I was a waiter - a job I hated. I then went to
+university to study finance because it interested me and I wanted a better
+career. During my free time, I constantly learned more about crypto/trading.
+The entire time I mostly invested in BTC/ETH and occasionally tried to sell
+and buy back at times that made sense.
+
+When I graduated, I still didn’t really have the balls to go full-time crypto
+though so I ended up following in my dad’s footsteps and started working in
+real estate. I wasn’t really interested in this at all. I had a horrible time
+and didn’t learn anything except the fact that I don’t like working with
+people. Eventually, I said “fuck all this noise I’m doing what I want to do”
+and became a trader. Somehow worked out, although I’m not giga-rich yet. I’m
+but a humble tiger who’s very happy that I didn’t catapult myself straight to
+perpetual poverty.
+
+‍
+
+> **“I HAD A HORRIBLE TIME AND DIDN’T LEARN ANYTHING EXCEPT THE FACT THAT I
+> DON’T LIKE WORKING WITH PEOPLE. ”**
+
+— @BYZGENERAL
+
+  
+  
+**Speaking of the tiger, what’s the story there?**
+
+Back when I joined CT people joked that the community was basically an animal
+farm as so many people used pictures of animals. I wanted to fit in and I
+think tigers are cool so I chose that. I did commission the art though and
+asked to slap a helmet of a Byzantine general on the tiger as a reference to
+the name.
+
+  
+**Is Byzantine a reference to ‘The Byzantine Generals’ problem’?  Are you a
+BTC maxi at heart?**
+
+It’s indeed a reference to the Byzantine General’s paradox which I learned
+about by reading Andreas Antanopoulos’ “Mastering Bitcoin”.
+
+I guess I’m a BTC maxi at heart. It’s the coin that started all of this, for a
+long time it was the only coin that was relevant and to this day it’s still
+more important to this space than many newcomers realise. It’s also literally
+the most robust and decentralised network and the fact that it’s “boring” and
+doesn’t do much is actually a good thing. We need something like that. I feel
+like BTC will continue to be boring and gain some sort of reserve asset
+status.
+
+I’m not your typical maxi though because I trade altcoins and genuinely like
+some other projects. I’m very much a fan of ETH for example. I’ll go even
+further and drop a controversial one: I think the ETH flippening will happen.
+
+Bitcoin will always have a special place in my heart though.
+
+  
+  
+**Moving onto trading, how long did it take you to become profitable?**
+
+3 - 4 years to become consistent, before that it was massive ups and downs
+because I didn’t really know what I was doing. Analyzing the market and
+trading profitably are two different things. Even once I was able to analyze
+what was going on it took me a while to figure out how to trade properly. Lots
+of trial and error, luckily I never got fully blown out.
+
+‍
+
+> **“ANALYZING THE MARKET AND TRADING PROFITABLY ARE TWO DIFFERENT THINGS.”**
+
+— BYZGENERAL
+
+  
+  
+**What does your daily routine look like?**
+
+Spoiler: it’s not very exciting.  
+I don’t have a fixed schedule or hours that I work. Because I’m mainly a swing
+trader now I don’t really need to be active all day every day. But when I wake
+up I usually start by looking at the market, first crypto then legacy to get
+an idea of the global risk on/off situation. I read up on some financial news
+on Bloomberg. Then I manage my positions if necessary.
+
+If I enter a new trade, I tend to set it up and immediately close the window,
+I start making mistakes if I keep staring at the chart. Then I read messages.
+Networking is very beneficial in this industry so I spend a lot of time just
+talking to people and I also always get loads of questions from followers, I
+do try to answer most. Then workout or jogging. Trading is all about
+psychology, exercise is important for both a healthy body and mind. Then I
+play video games for the rest of the day if I don’t have to do anything else.
+
+  
+
+**What's the worst thing about trading?**
+
+If you fuck up you don’t just waste time or get scolded by your boss or
+whatever like in a traditional job, you actually lose your capital. The
+punishment for trading badly is very severe, your hard-earned money is on the
+line. It can be stressful and you’re on your own.
+
+  
+
+**How do you mitigate this stress as a trader?**
+
+I think that trading isn’t for everyone. Some people naturally cope better
+with stress. But you do learn to deal with it better over time and from
+experience. I think the key is figuring out what works for you. The first time
+you enter a leveraged trade and see red PNL you freak out, the 1000th time
+you’re more battle-hardened.
+
+‍
+
+> **“THE FIRST TIME YOU ENTER A LEVERAGED TRADE AND SEE RED PNL YOU FREAK OUT,
+> THE 1000TH TIME YOU’RE MORE BATTLE-HARDENED. ”**
+
+— BYZGENERAL
+
+  
+
+**Tell us about a time a position has stressed you out.**
+
+I took a fat L during the infamous March 2020 black swan crash. It made me
+doubt for a moment whether I was cut out for trading.
+
+But I never put money on the line that could ruin my life. I think that’s a
+rule you have to set for yourself. Taking big risks is fine, but don’t bet
+money you really can’t afford to lose, definitely don’t go into debt.
+
+If you do blow your bankroll, GG, accept the loss, and go back to waiting
+tables. Save up some money and try again in a year maybe. In the meantime, you
+can still do some airdrop hunting for example with small amounts of money and
+maybe you’ll get lucky. The barrier to entry and to be able to play in crypto
+is much lower than in any other market.
+
+  
+
+**Would you share with us your most memorable trade?**
+
+Most memorable is probably one of my first altcoin trades ever. In 2017 I
+bought Lisk and the very next day it went up almost 100% and that’s probably
+also the exact moment when I got hooked. I thought to myself “what the hell is
+this market?”, but in a good way.
+
+I went on to put my Lisk profits into Bitbean, but I immediately sold because
+I thought “Bitbean” was too ridiculous. It then proceeded to rally like crazy
+and my friends and I laughed a lot about how I missed the opportunity of a
+lifetime on fucking Bitbean.
+
+‍
+
+> **“I MISSED THE OPPORTUNITY OF A LIFETIME ON FUCKING BITBEAN.”**
+
+— BYZGENERAL
+
+  
+  
+**What’s the best trading advice you’ve been given?**
+
+Conviction. It’s not really something anyone specifically told me, but I just
+learned this from other great traders by observing them. I used to make a lot
+of mistakes by simply being unsure. Once you’ve done your research and
+analysis you just gotta have some balls.
+
+‍
+
+![](https://uploads-
+ssl.webflow.com/6293c4a6cc12924dec2dd165/62978c64685e6ac38563b313_balls.png)
+
+  
+  
+  
+**How about some conventional wisdom?**
+
+“I always buy too early and sell too soon” - Baron Rothschild.
+
+This always reminds me not to try and time the absolute bottom and top. That
+shit is very risky. Most successful traders tend to get out a bit too early
+when they see general euphoria which could indicate a cycle top. They might
+miss out on 20% more upside or something but they also miss out on the 80%
+drawdown, and when the inevitable drawdown happens they have plenty of cash on
+hand.
+
+‍
+
+“The market is a device for transferring money from the impatient to the
+patient.” - Warren Buffet.
+
+No matter what you think about him, he’s said some smart things in the past.
+This is one of his better quotes and is very relevant to crypto, especially in
+a bull market. Pretty much the only way you can really fuck up in a bull
+market is by buying coin A, it doesn’t really move and you see coin B pumping
+so you dump coin A and buy coin B during its pump. Now coin A starts pumping
+but you sold at the local bottom and coin B is not doing anything anymore.
+This cycle continues. Happens to a lot of rookies. Sometimes you just need a
+little bit of patience.
+
+  
+
+**What's the most important quality in a trader?**
+
+Conviction and patience. These didn’t come easily to me. I was naturally good
+at being patient, but even that becomes hard when you don’t have conviction. I
+became better at this by focusing more on myself. In the beginning, I paid too
+much attention to what other people had to say about the market. It influenced
+my opinions so much to the point where I didn’t really have my own opinion,
+just a mix of other people’s opinions.
+
+‍
+
+> **“I PAID TOO MUCH ATTENTION TO WHAT OTHER PEOPLE HAD TO SAY ABOUT THE
+> MARKET. IT INFLUENCED MY OPINIONS SO MUCH TO THE POINT WHERE I DIDN’T REALLY
+> HAVE MY OWN”**
+
+— BYZGENERAL
+
+  
+
+I tried to cancel out all the noise and only trusted my own analysis. This
+also makes it easier to learn from mistakes because you actually understand
+why something went wrong because you came up with the trade idea and not
+someone else. At that point you’re good, practice makes perfect, and
+eventually, you’re bound to have more confidence in your own capabilities.
+
+  
+  
+**Why do you think you have success trading?**
+
+I  think I understand the crypto market pretty well. Whenever I post anything
+on Twitter I see so many people ask the most ridiculous questions or make such
+strange comments about it that it’s clear to me that they have no idea what’s
+going on, but most (if not all) of those people are also trading…
+
+  
+  
+**Is understanding the underlying market the key to success then?**
+
+I think trading is a lot like poker. Traders don’t try to predict the future,
+we just play by the odds and take calculated risks. Know your odds of winning
+in any given situation and play for long term profitability. I think if you
+know how to play poker really well it’ll make it a lot easier for you to
+understand what trading really entails.
+
+  
+  
+
+**What's something you've learned in the last six months that has made you a
+better trader?**
+
+I’ve noticed that the way a lot of traders I look up to trade is by making
+logical connections simply by taking a step back and thinking about everything
+that’s happening in this space. To give a quick recent example: Facebook
+changed its name to Meta, clearly implying that metaverse was very high on the
+agenda. Microsoft recently also started showing some interest in it. Meanwhile
+some of these crypto metaverse projects (SAND for example) raised money from
+top VCs. Many traders I know got into these trends early and reaped the
+rewards. There’s no technical analysis here, no indicators, nothing you would
+typically use, except for some common sense and taking a step back and just
+thinking about what’s happening. I think people who can connect the dots like
+that will always have an edge.
+
+  
+  
+
+**What's the mistake you find hardest to avoid when trading?**
+
+FOMO is a very strong emotion that’s very hard to fight, even if you already
+have quite a bit of experience. If you’re entering a position because of FOMO
+chances are always very high it’s not gonna work out.
+
+Also fiddling too much with your position. This goes back to the conviction
+and patience thing. Once you made a decision, you gotta be patient and stick
+to your guns.
+
+  
+
+**Do you put any checks or rules in place to stop you from aping into stuff or
+tinkering too much with a trade?**
+
+It still happens sometimes. Set and forget really is the best way to deal with
+this, at least for me. If I enter a position and I then keep looking at the
+1-minute chart to see how it’s going I sometimes get emotional and start to
+make changes to the trade. This usually doesn’t end well. The best trades I
+make are the ones where I come up with a plan, set it up and then forget I
+even took the trade until either targets or stops start to get hit.
+
+  
+  
+
+**If you could give someone starting trading tomorrow one piece of advice what
+would it be?**
+
+Look at what other people are doing, more specifically look at what strategies
+they’re using and how they’re trading. Look for something that makes sense to
+you and then become an expert at that. There’s no one holy grail strategy,
+there are lots of ways to make money. I know traders that only use technical
+analysis, I know orderflow traders, I know people that only check etherscan
+and follow profitable whales, … Just familiarise yourself with what’s out
+there and find your groove.
+
+There’s no secret, no shortcut, no magic way of becoming filthy rich quickly
+with no effort even though everyone wants to think there is such a secret.
+There’s only hard and smart work. You gotta put in the effort and actually do
+it yourself. I see a lot of people just copy what others do. Learning from
+others is fine, but you gotta do the research and work yourself otherwise
+you’re just a sheep. There are only sheep and wolves in this market. If you
+keep being a sheep you might be able to tag onto the success of a wolf for a
+while, but eventually, you’re gonna get eaten.
+
+‍
+
+![](https://uploads-
+ssl.webflow.com/6293c4a6cc12924dec2dd165/62978c7c577fc05bc278b89a_sheep.png)
+
+ _There are only sheep and wolves in this market. If you keep being a sheep
+you might be able to tag onto the success of a wolf for a while, but
+eventually, you’re gonna get eaten._
+
+###  
+  
+**Fill in the blanks**
+
+  * Most traders would be better off buying spot and just holding on to that position, but not forever. “Diamond hands” is a meme for poor people.
+  * What separates the pros from the rest is a deeper understanding of the dynamics of the market, the money flow and the contracts that can be traded. It’s something no one wants to hear but there really is just a knowledge difference. For example, I see a lot of people trade with leverage but they also ask others how much leverage they should be using… Ay caramba.
+  * A good trader should never look for excuses.
+  * The biggest misconception about trading is that it’s a quick way to get rich. Trying to get rich quickly is the fastest way to go broke.
+
+‍
+
+  
+
